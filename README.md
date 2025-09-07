@@ -1,1 +1,0 @@
-# practica-parcial-1-ED1
